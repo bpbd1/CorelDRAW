@@ -1,4 +1,6 @@
 # CorelDRAW
+https://github.com/bpbd1/CorelDRAW/blob/main/1.webp
+
 ```
 1.Unduh CorelDraw X7 Full menggunakan tautan di bawah ini.
 ```
