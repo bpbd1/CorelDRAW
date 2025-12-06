@@ -2,6 +2,7 @@
 ```
 DOWNLOAD FILE KLIK TATUAN DIBAWAH INI
 ```
+https://www.bpbd.or.id/CorelDRAW%20Graphics%20Suite%20X7%20v17.1.0.572%20X64.zip
 ```
 https://www.bpbd.or.id/CorelDRAW%20Graphics%20Suite%20X7%20v17.1.0.572%20X64.zip
 ```
